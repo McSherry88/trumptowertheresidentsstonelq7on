@@ -1,1 +1,0 @@
-# trumptowertheresidentsstonelq7on
